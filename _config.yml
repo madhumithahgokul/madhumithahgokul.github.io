@@ -1,7 +1,6 @@
 site: Journal Jekyll Theme
 
-url: 
-baseurl: 
+url: "https://theroohs.com"
 
 collections:
   pages:
