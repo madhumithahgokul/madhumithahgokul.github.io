@@ -5,7 +5,7 @@ description: Well, may be not so much, at least not all of it.
 featured_image: /images/dp.jpg
 ---
 
-![](/images/About_1.jpg)
+![](/images/.jpg)
 
 ## A little about me
 
