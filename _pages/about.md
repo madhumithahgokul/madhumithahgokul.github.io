@@ -15,7 +15,7 @@ featured_image: /images/dp.jpg
 
 ***My roots:*** I grew up in extremely mediocre finances, in a household of an abundance of never-enoughs. Money and generosity need not always present themselves sequentially, I had come to believe growing up. 
 My family, ah! I don't think there could have been a better school to have taught me wholeheartedness. My mom was and still is a queen in that kingdom. 
-My core family, extends a little beyond my parents and sis. My life would have been a bottomless pit of literal hell, most certainly to say, without my grandparents, my aunt's family and my first dog, Ruby. I have always seen my family elements as a carefully designed and laid puzzle. 
+My core family, extends a little beyond my parents and sis, my beautiful sis. My grandparents, my aunt's family and my first dog, Ruby. My life would have been a bottomless pit of literal hell, most certainly to say, with even one of them missing in my story. I have always seen my family elements as a carefully designed and well-laid puzzle. 
 I was raised as a child of values-values of giving, spirituality, kindness in all shapes and form (one that I am still catching up on), as an individual that was allowed the freedom to dream and to have the courage to make a better reality for myself and for those around me. And for that, I can forever be tied in humility. 
 
 Lets **move *on***, shall we?
