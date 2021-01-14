@@ -11,7 +11,7 @@ featured_image: /images/dp.jpg
 
 ***Where it all began:*** India, yes, I was born and raised there and eventually got inspired to move out *in search of better*.
 
-***Why:*** Why? May be that's idiosyncratic of a rebel, of *me*?! Are all dreamers rebels? I should think so, in varying degress. I dream, *so* beyond my imagination that *my* dreams uproot me off a stable ground every now and then. Sometimes to a different country, so far away from the place the place that once meant to be eternal home. Sometimes to a city that wasn't quite part of the dream. And sometimes, giving me that push to do things that I once never imagined doing, like writing a blog. *This* one. We'll come to that part later.
+***Why:*** Why? May be that's idiosyncratic of a rebel, of *me*?! Are all dreamers rebels? I should think so, in varying degress. I dream, *so* beyond my imagination that *my* dreams uproot me off a stable ground every now and then. Sometimes to a different country, so far away from the place that once meant to be home, eternally. Sometimes to a city that wasn't quite part of the dream. And sometimes, giving me that push to do things that I once never imagined doing, like writing a blog. *This* one. We'll come to that part later.
 
 ***My roots:*** I grew up in extremely mediocre finances, in a household of an abundance of never-enoughs. Money and generosity need not always present themselves sequentially, I had come to believe growing up. 
 My family, ah! I don't think there could have been a better school to have taught me wholeheartedness. My mom was and still is a queen in that kingdom. 
