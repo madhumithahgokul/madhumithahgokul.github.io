@@ -1,5 +1,5 @@
 ---
-title: My story.
+title: My story
 subtitle: Well, may be not so much, at least not all of it.
 description: Well, may be not so much, at least not all of it.
 featured_image: /images/dp.jpg
