@@ -1,6 +1,6 @@
 ---
 title: 'The Confessions of Dishonesty'
-subtitle: 'My Dishonesty - A Processed Thought’
+subtitle: 'My Dishonesty - A Processed Thought'
 date: 2021-01-18 00:00:00
 featured_image: '/images/begin.jpg'
 
