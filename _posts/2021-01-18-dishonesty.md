@@ -3,6 +3,7 @@ title: 'The Confessions of Dishonesty'
 subtitle: 'My Dishonesty - A Processed Thought’
 date: 2021-01-18 00:00:00
 featured_image: '/images/begin.jpg'
+
 ---
 
 “… the truth is where we are going to end up inevitably, then why don’t we just start with it? And save the drama?”- Elizabeth Gilbert.
